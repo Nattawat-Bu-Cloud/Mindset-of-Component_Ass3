@@ -1,0 +1,1 @@
+# Mindset-of-Component_Ass3
